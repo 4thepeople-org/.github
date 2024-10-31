@@ -3,8 +3,8 @@
 > [!IMPORTANT]
 > At this time, we are not accepting spontaneous applications.
 
-Hi, developer 👋\
-Ready to make an impact together?
+### Hi, developer 👋
+Do you want to be part of our team?
 
 **Let's connect:**\
 📧 **Email:** careers@4thepeople.it  
