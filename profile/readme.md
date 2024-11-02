@@ -12,5 +12,5 @@ Do you want to be part of our team?
 
 **4 THE PEOPLE SOCIETA A RESPONSABILITA LIMITATA SEMPLIFICATA**\
 Via Conti dei Marsi S.N.\
-04100 Latina (RM)\
+04100 Latina (LT)\
 P.IVA 03261040590
