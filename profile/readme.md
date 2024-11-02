@@ -21,7 +21,7 @@ Do you want to be part of our team?
 📧 **Email:** careers@4thepeople.it  
 🌐 **Website:** [https://careers.4thepeople.it](https://careers.4thepeople.it)  
 
-**4 THE PEOPLE SOCIETA A RESPONSABILITA LIMITATA SEMPLIFICATA**\
+**4 THE PEOPLE S.r.l.s.**\
 Via Conti dei Marsi S.N.\
 04100 Latina (LT)\
 P.IVA 03261040590
