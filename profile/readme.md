@@ -19,7 +19,7 @@ Do you want to be part of our team?
 
 **Let's connect:**\
 📧 **Email:** careers@4thepeople.it  
-🌐 **Website:** [https://careers.4thepeople.it](https://careers.4thepeople.it)  
+🌐 **Website:** [https://careers.4thepeople.it](https://careers.4thepeople.it)  (not yet, contact us via email)
 
 **4 THE PEOPLE S.r.l.s.**\
 Via Conti dei Marsi S.N.\
